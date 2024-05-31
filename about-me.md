@@ -1,5 +1,4 @@
 ## About Me
-Currently, I am a Senior at Morgan State University, located in Baltimore, Maryland. I am pursuing a Bachelor’s degree in Computer Science. My expected graduation date is in 2025.
-
+Currently, I am a junior attending Clark Atlanta University with a biology major, with the career goal of becoming a physical therapist and hopefully opening my own holistic practice that offers services to underserved communities around the world.
 [Linkedin Profile](https://www.linkedin.com/in/michael-adeleke-4a1228217/)
 

@@ -1,1 +1,1 @@
-wrote some code
+During week two of the AI internship, my group project 7 explored the fundamentals of climate pollution and human health. We also gained an understanding of the Python software and its various applications. We also learned about the NASA Giovanni System and started analyzing data collected from satellite sensors that show PM2.5 concentrations around different regions of Baltimore. (https://github.com/CaisonPeters/CaisonPeters.github.io/assets/171374191/824ded24-430b-49e4-b7af-b55a89199c27)

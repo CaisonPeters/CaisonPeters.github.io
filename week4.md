@@ -1,1 +1,1 @@
-
+This week, we had the opportunity to meet the high school teachers who will be collaborating with us. Our goal was to familiarize them with the project and demonstrate how to effectively use NASA Giovanni to collect pollutant concentration data. Then, after narrowing down the time frame of the data we were looking at, we decided to focus on the years 2008–2017. We divided our search for Baltimore into four regions, which we then further divided into low- and high-income areas.

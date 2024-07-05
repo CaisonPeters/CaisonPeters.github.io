@@ -1,1 +1,1 @@
-
+This week was a short one due to the holiday on Wednesday. We spent the majority of the week preparing our slides and reviewing the content for our mid-summer presentation. The postponement of the mid-summer presentations allowed us to dedicate more time this week to working on our slides and analyzing our data. We observed a correlation between our two sets of data, which ultimately contradicted our hypothesis, prompting us to reassess our current research and the various variables we have been examining.

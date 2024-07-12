@@ -1,1 +1,1 @@
-
+This week, we successfully completed our mid-summer presentations. I think it went really well. I enjoyed listening to the other groups present and sharing their research and findings so far during the institute. My team did really well as we shared our data and talked about all we have learned this far into the summer. Before Wednesday, we filmed a vlog of my team, and it showed me flying the drone for the first time, which was fun. 

@@ -1,1 +1,1 @@
-
+This week, me and my team created an elevator pitch video. We also began the serious writing of our scientific paper and solidified the algorithms we plan to use. This week's major challenge was figuring out how to edit our elevator pitch video and come up with an interesting pitch that isn't boring.

@@ -1,1 +1,1 @@
-
+This week, we completed the slides for our final presentation, and we also had the opportunity to practice with our mentors and work on project 4. I ensured the correct editing and logical flow of all my slides. In addition, I included pictures that would attract the attention of the audience. I look forward to presenting the final slides and our findings we have conducted during our research. 
